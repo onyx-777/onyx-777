@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @onyx-777
+- 👋 Hi, I’m Prakhar
 - 📫 How to reach me ...
 My linkedin account : https://www.linkedin.com/in/prakhar-pradeep-22854421b/
 My twitter account : https://twitter.com/prakhar_pradeep
